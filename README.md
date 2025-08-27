@@ -1,3 +1,3 @@
 # thedays
 thank you
-okay lets
+okay let go
